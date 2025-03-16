@@ -46,11 +46,11 @@ Alien Stage, Persona 5, Алиса в пограничье, Silent Hill, Нез�
  
 Lost in the cloud (Облако), Secret Alliance (Тайный союз), Nii-Chan (Нии-Чан), Sadistic Beauty: Side Story B (Прелести садизма: Другая история Б), Bj Alex (БЖ Алекс),
 
-![image.gif](https://github.com/user-attachments/assets/c618e446-3275-4b42-a454-34b3a9153d79)
+![image](https://github.com/user-attachments/assets/c618e446-3275-4b42-a454-34b3a9153d79)
 
 ***УПОМЯНУТО НЕ ВСЁ***
 
-## ![image.gif](https://github.com/user-attachments/assets/6ed0e038-e27c-4506-82a3-b1911f7b27bc) ***Мои любимые исполнители:***
+## ![image](https://github.com/user-attachments/assets/6ed0e038-e27c-4506-82a3-b1911f7b27bc) ***Мои любимые исполнители:***
 
 - *От более любимых к менее любимым:*
 
