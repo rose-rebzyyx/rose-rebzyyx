@@ -50,7 +50,7 @@ Lost in the cloud (Облако), Secret Alliance (Тайный союз), Nii-C
 
 ***УПОМЯНУТО НЕ ВСЁ***
 
-## ![image](https://github.com/user-attachments/assets/6ed0e038-e27c-4506-82a3-b1911f7b27bc.gifv) ***Мои любимые исполнители:***
+## ![image](https://github.com/user-attachments/assets/6ed0e038-e27c-4506-82a3-b1911f7b27bc) ***Мои любимые исполнители:***
 
 - *От более любимых к менее любимым:*
 
