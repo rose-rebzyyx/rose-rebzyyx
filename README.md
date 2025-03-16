@@ -1,5 +1,7 @@
 ![2480x520](https://github.com/user-attachments/assets/f136ae58-b4bb-43da-9938-7f7803fe7cb6)
 
+![](https://64.media.tumblr.com/9238b3f8b978bac5fc16429235c49af0/b18aff3ce9323114-6a/s1280x1920/c59c666c62b21559b4d92929e7fc566075bd0669.gifv)
+
 # ![v3innq](https://github.com/user-attachments/assets/90894bef-00ab-4c01-a176-33a31ced9884) ***Привет!! :3*** ![rl83i5](https://github.com/user-attachments/assets/99ecfc54-3414-4522-a1ee-3767d89948de) ![image](https://github.com/user-attachments/assets/54c165b3-56ae-425d-8b39-afe226114034) ![image](https://github.com/user-attachments/assets/85bb623a-b748-43f4-bca2-db0984b0c71e)
 
 
