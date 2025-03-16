@@ -20,7 +20,7 @@
 
 ##### Фанатики онли млв - ливаем.
 
-![image](https://github.com/user-attachments/assets/6855bfcd-303e-4a86-a2b7-040889cf92b0)
+![image.gif](https://github.com/user-attachments/assets/6855bfcd-303e-4a86-a2b7-040889cf92b0)
 
 ## ![image](https://github.com/user-attachments/assets/e2e88a27-d4ee-4f0b-9b48-1d579ba8af3b) ***Я шарю за:***
 
