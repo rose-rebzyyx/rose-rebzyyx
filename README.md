@@ -240,6 +240,11 @@
 
 - *Для Юми и Китика:*
 
+![tumblr_fbe4a238ce7ab173504b6eb2a20b0e30_fd8a890f_2048 (1) (1)](https://github.com/user-attachments/assets/d24082b6-0c5c-4b7a-80cb-56bf41848a93)
+![](https://64.media.tumblr.com/d128b921edc3b734752018fcf6775ae7/0baf6f1b405bb562-5a/s100x200/84c1f270d227b018e2263caf9b1f01c68caf2643.gifv)
+
+![](https://64.media.tumblr.com/946dfdc6027749eb13a1055ab0926311/1c5dc908f431aee6-aa/s250x400/5ea2c43fd1ef4c476d68fd51f715dc97b30abedd.gifv)
+
 
 ![](https://64.media.tumblr.com/0d4009274239c5a41b8176285a1b1a35/835396812ab98429-f1/s250x400/646f3f49f3d19ec3ebd11ccef1691fd96f257704.gifv)
 ![](https://64.media.tumblr.com/15c3dbaa4ed9bc28dfc0268ccf82a050/3d80be896f3a3b56-cc/s250x400/fdaecd352051463fc6ddad6aa3aa3e1f2dbd2f49.gifv)
@@ -254,6 +259,15 @@
 
 ![](https://64.media.tumblr.com/3a78afd5661efce83e7f686c056beb6e/edf8b1846cb1b110-b6/s100x200/9aca84a2faaf4aa07d969bdfe272d949c6ef3bbb.gifv)
 ![](https://64.media.tumblr.com/008d96607be5825632cbec8ccf604f9c/edf8b1846cb1b110-e0/s100x200/f451f747bae70fd59710d9d80b2f68ce20391d4e.gifv)
+
+
+![tumblr_ca35d04721a23b203951ede6a45d99bd_1612dc66_500](https://github.com/user-attachments/assets/565aa601-b60e-4225-a995-a20b7555fa43)
+![tumblr_48b0f0da33a06de535f5c5b6aa3e7c8a_47407cbf_500](https://github.com/user-attachments/assets/80731ecd-69f3-4809-b537-026b66db3c0f)
+![tumblr_11a4457f472f00e638c5d59fc5676e7f_40687f3f_500](https://github.com/user-attachments/assets/28c41854-51f7-4f6d-96dc-dd81d772184a)
+![tumblr_5f36995b545e5ea0dbc087681e9b7109_79258405_500](https://github.com/user-attachments/assets/ae5f8abd-1d68-40bd-bba3-03b025f7f1cb)
+![tumblr_2e8b462985c7bde66647b6634d5ee814_2cf161e5_500](https://github.com/user-attachments/assets/0e777ac5-6941-4a3c-bdc5-063d21412a04)
+
+
 
 
 
