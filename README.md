@@ -13,6 +13,9 @@
 
 ###  ![](https://64.media.tumblr.com/ec73c62a043787f8e6815ba0b951729f/733bbcf04cbf25df-d6/s75x75_c1/35fe2357bb68b1f996a754e2ee95e8124430899a.gifv) ___Я Рᴏɜᴀ/𝚁𝚘𝚜𝚎 !___
 
+
+#### ![](https://64.media.tumblr.com/72424d2841cccf9329daaafde7af00a3/6af0d8886def686e-80/s75x75_c1/e02f0c09a4aba1727c1e974d0931e4d61b007777.gifv) 𝑀𝑦 𝑏𝑖𝑟𝑡ℎ𝑑𝑎𝑦: 𝑀𝑎𝑦 8 ! ^^
+
 - ![](https://64.media.tumblr.com/8de55d874d296a22bfcad09c74c18c37/0eaf7daac65a55ef-d3/s75x75_c1/5e8841fcbaf4d004ed8e0f7765144cf554599189.gifv) / ![](https://64.media.tumblr.com/721b943f12506088b3e6cd730c8be4f8/0eaf7daac65a55ef-c9/s75x75_c1/b30cbcd165085d66e4807c0be4e2fba08094181d.gifv)
 
 - ![](https://64.media.tumblr.com/679f246b254630e5ac936373b7b57768/17390c1c19cc6c29-08/s75x75_c1/91c8a7bada6868358ac33aa06b4e30a05d04830b.gifv)
