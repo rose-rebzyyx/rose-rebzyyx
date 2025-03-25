@@ -302,5 +302,3 @@
 ![](https://64.media.tumblr.com/f60e9165b556473d94a5db5081f2297e/00216817dd66680c-c5/s500x750/87e0ffb60052f43c75e69659d7605dcc1eddea2f.pnj)
 ![](https://64.media.tumblr.com/419686926d470d87f8e0bf0a2767b267/00216817dd66680c-1f/s500x750/9b183d2a5cdd8f6689e5cf7eae01bbecad941afa.pnj)
 
-
-![](https://komarev.com/ghpvc/?username=rose-rebzyyx&style=for-the-badge&color=fab2d5&label=✦)
