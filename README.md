@@ -26,7 +26,7 @@
 ![Котенок](https://64.media.tumblr.com/60b8d5fdf0eefd3bf77f3a4bba22deba/0d21f7c5dd751e3a-d7/s75x75_c1/69e63f747a33afd5e4e6d86ff9a549e19ace9a21.gifv)
 ![Tumblr_l_14266053675565](https://github.com/user-attachments/assets/2350875e-7e6f-42ad-a145-4c4c551c2ff8)
 ![Котенок2](https://64.media.tumblr.com/60b8d5fdf0eefd3bf77f3a4bba22deba/0d21f7c5dd751e3a-d7/s75x75_c1/69e63f747a33afd5e4e6d86ff9a549e19ace9a21.gifv)
-- ***У ʍᴇня ᴀᴨᴀᴛия, дᴇᴨᴩᴇᴄᴄия, и нᴏɜᴏɸиᴧия***
+- ***У ʍᴇня ᴀᴨᴀᴛия, дᴇᴨᴩᴇᴄᴄия, нᴏɜᴏɸиᴧия, и ᴄᴨиᴛɸᴇᴛиɯ***
 
 ㅤㅤ**Я ᴧюбᴧю яндᴇᴩᴇ и ɸᴇʍбᴏᴇʙ :3**
 
