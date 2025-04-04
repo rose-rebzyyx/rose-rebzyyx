@@ -31,6 +31,9 @@
 ㅤㅤ**Я ᴧюбᴧю яндᴇᴩᴇ и ɸᴇʍбᴏᴇʙ :3**
 
 
+- неудачного аборта] thinks: роза перевозбудилась от мыслей о душе
+
+
  - ![Яой](https://64.media.tumblr.com/696114a32c7ca3059da3ff1e4fdba582/736a4281092b779e-2f/s75x75_c1/db534c722474e1e51871a9c2927597083614cc5c.gifv)
 ![kawaiihellokitty](https://github.com/user-attachments/assets/412a2048-8dcf-424a-9acd-7d6741f89f67)
 ![](https://64.media.tumblr.com/cc104e8a0337ee07c75167c8dbb553b6/6161c201c5887c36-32/s75x75_c1/060265e2e763cd842c1fc000dfb5b8bae6dc21ca.gifv)
