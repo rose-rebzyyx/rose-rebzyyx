@@ -33,6 +33,10 @@
 
 - неудачного аборта] thinks: роза перевозбудилась от мыслей о душе
 
+- [господин розы)))] фу нелярозы дни
+
+ㅤㅤгосподин розы)))] Нелярозы жертвы 1нц3ст4
+
 
  - ![Яой](https://64.media.tumblr.com/696114a32c7ca3059da3ff1e4fdba582/736a4281092b779e-2f/s75x75_c1/db534c722474e1e51871a9c2927597083614cc5c.gifv)
 ![kawaiihellokitty](https://github.com/user-attachments/assets/412a2048-8dcf-424a-9acd-7d6741f89f67)
