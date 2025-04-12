@@ -47,6 +47,7 @@
 ㅤㅤ![stupid](https://github.com/user-attachments/assets/2958ef86-f30e-4a16-a284-9d5450d469b3)
 ![](https://64.media.tumblr.com/52d3b7e91b3af58d3cfa5ead417eee48/ced80b15706aa269-42/s250x400/7871e07bbebaf90ad5c0416c265742dacee2088f.gifv)
 ![апатия](https://64.media.tumblr.com/edae253fc8cdbb8bda0fc6805cfcb0bf/07b4bfc237c93aa3-de/s75x75_c1/3918a2abc1dc6ab604d4fdc610d721f206fd86cf.gifv)
+![фембои](https://64.media.tumblr.com/005629b9616efaff313f3b1e5df71e67/cb6afc4f39134615-0b/s75x75_c1/14ff618621fe3d9d307c59dda2fdb589581ac391.gifv)
 
 
 ![Tumblr_l_13559763609301](https://github.com/user-attachments/assets/b9f42cdc-3eec-4aee-a40a-738722b05370)
