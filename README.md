@@ -92,6 +92,9 @@
 ![tumblr_cd0dc6dedc33727a38c1d3d52b0acde2_2fe0c33e_400 (1)](https://github.com/user-attachments/assets/d14729d5-0912-4276-a920-d859043bb9fd)
 
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypcxvijuzvjgk2dnmmvhdgzweu&cover_image=true&theme=novatorem&show_offline=true&background_color=0d1117&interchange=false&bar_color=fc5b9f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypcxvijuzvjgk2dnmmvhdgzweu&redirect=true)
+
+
 ![tumblr_b4e587bf4355961bb47dc641ee281722_20ca2ed1_400 (1)](https://github.com/user-attachments/assets/45aef227-72bf-4086-a49d-bc281c2bb85f)
 
 ![](https://64.media.tumblr.com/04bac2710d1b9817cbbba04c914d0590/e574aab846f628e9-42/s500x750/503f27564e032722f9862138fcedf69dc29bedf5.gifv)
