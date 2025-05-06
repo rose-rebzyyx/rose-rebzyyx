@@ -1,57 +1,162 @@
-We're such a mess together...
-
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypcxvijuzvjgk2dnmmvhdgzweu&cover_image=true&theme=novatorem&show_offline=true&background_color=0d1117&interchange=true&bar_color=fc5b9f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypcxvijuzvjgk2dnmmvhdgzweu&redirect=true)
-
-
-...
-
-I think I need your help, I think she's coming back
-
-You're the only one who's making me come
-
-
-To my sinful senses
-
-
-I'll never love, anyone the same
-
-
-Am I naïve to think that he could be the love of my life?
-
-
-There is a voice inside my head that's tellin' me that it's right
-
-
-I never thought I'd tell him how scared I am of losing him
-
-
-...
-
-Someday we'll both be older
-
-
-I wonder if we'll be together looking back on the past
-
-
-But I don't care if I don't live to see another day
-
-
-I love you in the worst way
+ㅤㅤㅤㅤㅤㅤ![жулик не воруй](https://github.com/user-attachments/assets/d3ec24fc-8b7e-4bb0-9512-d10a804b5b76)
 
 
 
-I love you and I hate you and I'm losing my mind
-
-
-And you tell me all the time that this will pass and that I'm gonna be fine
-
-
-We're such a mess together, you make me lose my temper
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ **С҉̝͕̠̝̘̣̝́̍͌̈ͅО̵̟̱͍̳̬̮͑̏̓̊͌͆8̴͎͎̮̗͚͕̏̈́͐́͋̚С̸̘̙̩̣͓̪͇̠̥̀͋̾̈̋̔Ѐ̴͚̗͔͇͚͉͓̪̭͖̤̪̄͌̂М̵̙͚̤̘̪̜̬̫̟̪̪̆̈́̓̏͆͆͋ о҈̙̳̳̱̝̭̠̙̲̖̫͛̌̋̈̿̍̈Д҉̙̘̩͎͍̦̝͔̪̽͐̽͊̂н̵̳̣̪̘̬̝͔̝͕̭̎̌̀̅̍̐А҈̟̳̜̭̠̖̆̓̑͐!҉͚̗̰̝̯͈̪̳̩̜͊̇̀̊͑͒͒̉́?̶͍̰̠̞̟̤̟͒̌̆̐͆̔̌͆̔́́̋ͅͅ!̶̙͎̠̤̗̟̦̣̪̾̿̅̓͆̐̚!̸͔̪̤̦̝̜͙̙͉̲̐̆̃͊́͐̉͑͗̎ в҉̠͚͓̝̗̯̫̜͙͋͌̀́͂̀͛͊̓͛ с̵̖͍̤͈͍̣̳̂͒̾̐̒́̂̒͛̽͗ͅв҈̬̥̤͍̲͕̘͈͚̳̀̑̃̋̈̔͑͒̽̎О̴͇̣̘̩͚̫̘̜̯̜̃́̆̿̓̀͐̃̀ͅͅе̶͍̞̝͖̖͉͖̲͚̲̠̂́̇͒̚й҈̗̞͚͔̰̥͂͗͑̾̈͋ к҉̞͉̞͉̤̠̤̲̩͕͚̳̍̐͂̑̀̅0̸̱̩̦̱̞̘̳̞͕͈̎̈̏̋̈́́͆͗͒̋͋̚м̸̞̭̘͓͈̝͊̎͊̅̐̓̐̾́̏̍Н҈̱͖͍̲̖͉͍̤͗̇̋̉͑̈́̅́̚ͅА̸͉̙͕̫̫̫̘̝̙̑̌͊͆̃͛̓̀̇̃т̴̩̣͎̳̯̫͗̽͋̈̈́̔̐̇е̶͎͖̝̞̦̗̞͎̜̩̽͋͐̃̓.̶̠̞̟̦͆͛̎̽̈.̸̠̘̳̞̙͍̳̲̫́͒̓͑̾̀̍̂̏.҈̣̥͈̩̥͈̠̀̎̌́̅͋̈́̎͊̏̋͌!̵͓̯͎̳̝̈́̔͑̐̄̌̀̽!҉̜̯͉̞͕̲͔̊͂̀́1̵̪̘̟̬͎̜̞̗̲̘́̏͒͋̔̏̌͐̀̂̈̚!**
 
 
 
-...
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ **С̴̙͇͙̠̭͚̬̖̇͂͋̏̔̊̽в҉͕̘̮̲͎͈̗̊͌͂͒̅̍͐͑̚ͅе҉̫͙͉̭̱̰͉̲̳̤̀̓̍́͐̔̚т̷̰̞̯̮̤̤̜̟̜͚̠͌̂̾̚ͅ в̷̭̯̟̰̂͋̅̑̄͂̈́ы҉̳̙͓̠̍̆̔̀̋̋͊͑̍́̒К̵̱͔̖͖͚͕̣̙̍̀̋͑̄͑̉л҈̞̟͇̥̮̋́̈́̓̎͂̑̚ю̵̭̟̯̲̣͙͖̫̮͖̓́̈̓́̎͒̌̏ч̴͔͎̱̖̥̞͒̆̌̒̃͆̆͗̓́̈́̒Е̴̩̘̪͎͕͙̍̌̌̃̉͊̉͑̉́н̵̥̙̱̞̀̀̓́̏̈́͒̾̍̚,̸̮͈̣̬̳̣̯͇͓̽̑̔̑ и̴̞̤̗͚͇͎̫̫̤̞͇̰̑̀̈́̈́̀́̃̅̃̎̀ М̷̳͔̫͍̲͔͉̀̂͌͌О̷̣͚̗͕̞̟̋̊̀̊͑Я̴͇̭̰̣̣̳̜̤̠̫̔̉̒̔ͅͅ с̴̙̣̫̟͉̦̤͊̃̏͒̀̊̔̾̋ӧ̷͈̗̩̗͓̰͐͗͌̐̾͛͗̀̀̎̃с̷̠͚̬̊̀̋̓̓́̈́͐̆̽ͅе̸̦̯̪͕̗̲̣̄̍̋̿͒͒̚ͅд̷͖̪͔̪͇̞̠̟̂͋͂̇͋к̴͓̤͎̟̟̭̳̩͑̆̊̔̓̂̓̽̔̈̄̉ͅӓ̶̘̭̖̮̭͉́͆͛̈́́̾ У̷͎̫̣̞̲͇͑̐̎̓̓̅̐Ш̵̥͎͍̗̗̮͍̩̗͕̽̍͊̈̒̊͒̓̂̽ͅЛ̸̟̟̤͇̠͕͕̰͎̘̍͗̽͋̏͌̇̒А̷͎͖̙̜̩̅̓͌̔ͅ!҉̰̫̘̙̟̩̱͈́̓͒́̄͒̎͂̇̽̈ͅ1҉̟͙̪̩̫͚̅͐̈́̀̓̂́͒̅̃ͅ!҉̟̣͔͚́̐̓͛̉̐̎̊̐̚!̶͕̠̣̰̳̟̰̬̳̲̖̅͂͋͑ͅ!̷̤̠̝̗͍͉̩̗̳̜̦̈́͌̀̎̈͗͐͑̒̿̀̈́.̴̩͓̠͓̇͊̎̚**
 
 
-Using You – Mars Argo
+
+
+
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**Я̷̳̪̞̗͍͕̅̋̀̉́̈̂͐ З҉̜̙͔̙̘͎͎̟̩͓͉̟͂̐̃̔Н҉͈̦̭̮̬͕̩͎͓̣̑̇̾̆͆̽͊̄̈́ͅА҉̭͎̞͔͖͉́̿͋̆͐̽͐̍̏́͆Ю҈̟̱͔̟̣̞̪̪̱̄̒̑̀̃͛̄̑.̶̜͕͎͙̠̖̖͖͚͂͋̃͗̿̇̊̃.҈̯̬̮̟͓͙͓̲̖̩̈̋̌̆̏̆͐ͅ.҉͍̫̤̥̜͕̯͙̫̾̃͌̂̊̇̈́͗́̓̀̓ͅ,̶̙̞͔̱͉͔͈̞̀͊̋͑̅̍̀́̉ ч̵͇̗̦͚̜̞̤̩̯̗͓̥͐̎̍̚т̷̞̖͇̪͈͙̗͓͔͙̳̟͗̉̊͂͆̐́͌О҉͖̬̗̣͕̣͇̗̃͒͆͒́̓̓̅͐ э̴̩͈͇͈͚͎̣̱̮̄̿͂́̀͒Т̴̙̝͔͖̫̜̔̆̆́̆͑̎̓̊̌̋о̶̰̰͖̳̬͕̆̐̈̒ͅ К҉̱͎͉̲̗̞̩̜͙̭̈͂̊̈̄́͐̑Ӧ̶̩̲͖̭̱̝̱̝̲͍́͑͐̀̌̏͋̚ͅН̸̥̘̯̥́̽̔̈́̃͛̀Е҈̪̙̜̪̿̓̏͋̔͗͐̑̐́͐̒Ц̷̣͉͔͎̫̲͈̜̬́̇̂̓͆̀̅̈́́̓̇̅ͅ!҈͚̱͕̘͇̬̙̣͍͓̣́̀͋̆̇̆̈͛̄̓̉̏,̶͇͉̦̣͓̝̟̥͓͛͊̏̋̑̽̋̚ͅ**
+
+
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**н̸͔̙̳̳͙̫̊́͋̀о̵̟̜̖͕̖̗̉̎͋̓̈́ Я̸͓͍̤̰̞̣͈̣͔͎͈̂̒͊̓̇̋̔͗͛͗ в̶̞̞͙̘͔̖͔̘͂̄̊̉͂͌̏̂с̵̪̟̫̬͇̟͇̞̤͊̽̊̊̅͐̋̈́̚ё҉̟̘͎̟͚̯͇̪̖̇͌̽̓̋̃̇̔͊ͅ е̷͇͕̮̬̳̞͊͆́͛͊͂͗̐щ҉͕̜̥̞̜̦̃̄͛̀͊̏̌́ё҈͚͕̗̯̭̘̩͍͉̲͓̬̋͂̏̉̐͑̓͛.̴̫̞͇̝͖̑̒̏̉ͅ.̴̳͉͎͉̖̯̀̀̈́̅͛̀̍̔̈́̾́͂ Ц̶̤̘͓͔̲̤͕̣̓̌̅̋Е҉̩͎̤̱̥̭̦͕̠̜̤͆̋͛̉̌͌̓̈́́̍̒̚П̶͕͈͖̰͕̖͉̦̂̀̐̐͛́Л̷̥͕͙̦̳̭͖͊̅̎͆͛́Я҈͙͍̤͔̜͕̩̩͈̪̎͆̾̀͗̌̏͋̈́̾́̀Ю҈͈̥̳̰͉̪̫̥̥̠̪̘̊̓̓̃̍̋̓̾̿̒̀С̴̞͚̜͕̠̟̘̮͖̭͓͙̌̈͑̾͛͊̆̽̅̅̍́Ь̵̦͕̪̱͚͕̫͇͇̎̂͊̇̾̃́̈̄̚.̸̫̠̳͓͕̝̙̟͍̰̖͕̎̅͆̾.̸̦͖̫̭͗̈́͗̏̄̅̿̋̂̓́̎.̸̪̮̞̞̯̜̳̣́̉̔͌̀̉̈́͗̎͒̄.҉͖̮̱͈͎̳̫̲͍͙̆͂̍̃̅̐̚**
+
+
+ㅤㅤㅤㅤㅤㅤ![жулик не воруй](https://github.com/user-attachments/assets/d1df5a77-5a0a-44bd-9921-52ee7dd541ef)
+
+
+ㅤ
+
+
+ㅤ
+
+
+
+
+ㅤ
+
+
+
+ㅤ
+
+
+
+ㅤ
+
+
+ㅤ
+
+
+
+ㅤ
+
+
+
+
+ㅤ
+
+
+
+ㅤ
+
+
+
+ㅤ
+
+
+ㅤ
+
+
+
+ㅤ
+
+
+
+
+ㅤ
+
+
+
+ㅤ
+
+
+
+ㅤ
+
+
+ㅤ
+
+
+
+ㅤ
+
+
+
+
+ㅤ
+
+
+ㅤ
+
+
+
+ㅤ
+
+
+ㅤ
+
+
+
+ㅤ
+
+ㅤ
+
+
+ㅤ
+
+
+ㅤ
+
+
+ㅤ
+
+
+
+ㅤ
+
+
+
+ㅤ
+
+
+ㅤ
+
+
+
+ㅤ
+
+
+
+
+ㅤ
+
+
+
+ㅤ
+
+
+ㅤ
+
+
+
+ㅤ
+
+
+
+
+
+
+ㅤ
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypcxvijuzvjgk2dnmmvhdgzweu&cover_image=true&theme=novatorem&show_offline=true&background_color=0d1117&interchange=true&bar_color=fc5b9f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypcxvijuzvjgk2dnmmvhdgzweu&redirect=true)
+
