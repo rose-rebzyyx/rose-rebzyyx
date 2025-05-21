@@ -1340,4 +1340,4 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypcxvijuzvjgk2dnmmvhdgzweu&cover_image=true&theme=novatorem&show_offline=true&background_color=0d1117&interchange=true&bar_color=fc5b9f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypcxvijuzvjgk2dnmmvhdgzweu&redirect=true)
 
 
-ㅤㅤㅤㅤㅤㅤㅤ![6408gi (1)](https://github.com/user-attachments/assets/c93052a5-0429-47fd-acf5-25add82079a1)
+ㅤ ㅤㅤㅤㅤㅤㅤ![6408gi (1)](https://github.com/user-attachments/assets/c93052a5-0429-47fd-acf5-25add82079a1)
