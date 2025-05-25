@@ -1340,4 +1340,17 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypcxvijuzvjgk2dnmmvhdgzweu&cover_image=true&theme=novatorem&show_offline=true&background_color=0d1117&interchange=true&bar_color=fc5b9f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ypcxvijuzvjgk2dnmmvhdgzweu&redirect=true)
 
 
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ![converted_video_compressed](https://github.com/user-attachments/assets/56631c8d-ca79-481c-898c-d68e619c579d)
+
+
+###### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤ ㅤㅤㅤтытытытытытытыты... СГОРИТ ДО ТЛА МОЯ ВСЕЛЕННАЯ!!...
+
+
+###### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤ ㅤㅤㅤ из темноты ТЫ ТЫ ТЫ ТЫ ТЫ!...
+
+
+###### ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤ ㅤㅤㅤи одна зола но там весенние, взойдут цветы ты ты ты ты ты...
+
+
 ㅤ ㅤㅤㅤㅤㅤㅤ![6408gi (1)](https://github.com/user-attachments/assets/c93052a5-0429-47fd-acf5-25add82079a1)
