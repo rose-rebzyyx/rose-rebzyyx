@@ -1,4 +1,5 @@
-<img width="640" height="640" alt="image" src="https://github.com/user-attachments/assets/a0dc376f-d3c0-4bd2-8152-35554f5e7fab" />
+![мы](https://github.com/user-attachments/assets/febf253e-4105-4376-97b1-837b3db0a1fb)
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**я и ты**
 ㅤ
