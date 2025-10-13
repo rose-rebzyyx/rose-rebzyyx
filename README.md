@@ -1,6 +1,6 @@
 <img width="640" height="640" alt="image" src="https://github.com/user-attachments/assets/a0dc376f-d3c0-4bd2-8152-35554f5e7fab" />
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**я и ты**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**я и ты**
 ㅤ
 
 ㅤ
