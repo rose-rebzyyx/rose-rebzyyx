@@ -1,7 +1,7 @@
-ㅤㅤㅤ![мы](https://github.com/user-attachments/assets/febf253e-4105-4376-97b1-837b3db0a1fb)
+ㅤㅤㅤㅤㅤㅤ![мы](https://github.com/user-attachments/assets/febf253e-4105-4376-97b1-837b3db0a1fb)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**я и ты**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**я и ты**
 ㅤ
 
 ㅤ
