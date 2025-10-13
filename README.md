@@ -1,7 +1,7 @@
-![мы](https://github.com/user-attachments/assets/febf253e-4105-4376-97b1-837b3db0a1fb)
+ㅤㅤㅤ![мы](https://github.com/user-attachments/assets/febf253e-4105-4376-97b1-837b3db0a1fb)
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**я и ты**
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**я и ты**
 ㅤ
 
 ㅤ
@@ -1286,9 +1286,23 @@
 
 ㅤ
 
+ㅤㅤ
+
+ㅤ
+
+ㅤ
+
+ㅤ
+
+
+
 ㅤ
 
+ㅤ
+
+ㅤ
 
+ㅤ
 
 
 
@@ -1297,7 +1311,6 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ![video_2025-05-21_22-48-57](https://github.com/user-attachments/assets/686ff5e2-d43d-4a3a-89cf-d266f36d92ad)
 
 
 
@@ -1305,9 +1318,3 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ![converted_video_compressed](https://github.com/user-attachments/assets/56631c8d-ca79-481c-898c-d68e619c579d)
-
-
-
-
-ㅤ ㅤㅤㅤㅤㅤㅤ![6408gi (1)](https://github.com/user-attachments/assets/c93052a5-0429-47fd-acf5-25add82079a1)
